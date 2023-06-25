@@ -1,5 +1,4 @@
-Chapter 6: Navigating Obstacles and Resistance with Brain Training for Focus: The Obstacles and Resistance That Can Arise When Seeking to Use Brain Training for Focus
-======================================================================================================================================================================
+# The Obstacles and Resistance That Can Arise When Seeking to Use Brain Training for Focus
 
 While brain training for focus can offer many benefits, it is not always easy to incorporate into daily life. There may be obstacles and resistance that arise when attempting to implement these practices.
 

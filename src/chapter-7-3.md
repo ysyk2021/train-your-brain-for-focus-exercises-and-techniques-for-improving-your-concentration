@@ -1,5 +1,4 @@
-Chapter 4: Developing an Actionable Plan for Brain Training for Focus: Strategies for Setting Specific, Measurable, Achievable, Relevant, and Time-bound (SMART) Goals and Breaking Down Large Goals into Smaller Steps
-=======================================================================================================================================================================================================================
+# Strategies for Setting Specific, Measurable, Achievable, Relevant, and Time-bound (SMART) Goals and Breaking Down Large Goals into Smaller Steps
 
 In this chapter, we'll explore strategies for developing an actionable plan for brain training for focus. We'll discuss the importance of setting SMART goals and breaking down large goals into smaller steps to ensure success.
 

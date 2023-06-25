@@ -1,5 +1,4 @@
-Chapter 3: Assessing Your Current Approach to Focus and Concentration: Strategies for Analyzing Past Successes and Failures to Inform Future Approaches
-=======================================================================================================================================================
+# Strategies for Analyzing Past Successes and Failures to Inform Future Approaches
 
 Assessing your current approach to focus and concentration is an essential step in improving your ability to stay focused and on task. One effective method of assessment is analyzing past successes and failures to inform future approaches. In this chapter, we will explore strategies for using past experiences to improve your approach to focus and concentration.
 
