@@ -1,9 +1,9 @@
 # Summary
 
 - [Introduction](README.md)
-- [Explanation of the importance of focus and concentration in achieving personal and professional success](README.md)
-- [Overview of the benefits of developing effective strategies for improving concentration](chapter-2.md)
-- [Brief on how the book will help readers train their brains to improve their focus and concentration](chapter-3.md)
+  - [Explanation of the importance of focus and concentration in achieving personal and professional success](chapter-1.md)
+  - [Overview of the benefits of developing effective strategies for improving concentration](chapter-2.md)
+  - [Brief on how the book will help readers train their brains to improve their focus and concentration](chapter-3.md)
 - [Chapter 1: Understanding the Fundamentals of Focus and Concentration](chapter-4.md)
   - [Understanding the fundamentals of focus and concentration and their impact on personal and professional success](chapter-4-1.md)
   - [Techniques for cultivating a mindset towards improving focus and concentration](chapter-4-2.md)
