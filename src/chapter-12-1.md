@@ -1,5 +1,3 @@
-Recap of the Key Takeaways from the Book
-====================================================
 
 In this book, we have explored various exercises and techniques for improving focus and concentration. Here is a recap of the key takeaways:
 

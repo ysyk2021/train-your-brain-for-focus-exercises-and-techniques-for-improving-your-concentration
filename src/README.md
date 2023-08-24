@@ -1,4 +1,3 @@
-# Introduction
 
 In today's fast-paced world, distractions are everywhere. From social media notifications to the ever-present lure of streaming video, it can be challenging to stay focused on the task at hand. But with practice and perseverance, it is possible to improve your concentration and achieve greater success in all areas of life.
 

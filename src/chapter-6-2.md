@@ -1,4 +1,3 @@
-# Techniques for Identifying Areas of Strength and Weakness in Current Approaches
 
 Assessing your current approach to focus and concentration is an essential step in improving your ability to stay focused and on task. It involves identifying areas of strength and weakness in your current approach, so you can develop strategies for improvement. In this chapter, we will explore techniques for assessing your current approach to focus and concentration.
 

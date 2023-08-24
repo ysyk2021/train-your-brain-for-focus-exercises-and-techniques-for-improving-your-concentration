@@ -1,5 +1,3 @@
-Chapter 5: Leveraging Technology for Brain Training for Focus
-=============================================================
 
 In this chapter, we will explore the role of technology in brain training for focus. We will discuss techniques for selecting and implementing technology solutions for brain training for focus, as well as strategies for using technology tools to support brain training for focus.
 

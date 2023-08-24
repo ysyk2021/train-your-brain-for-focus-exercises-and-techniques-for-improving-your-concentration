@@ -1,5 +1,3 @@
-Chapter 6: Navigating Obstacles and Resistance with Brain Training for Focus
-============================================================================
 
 When it comes to improving focus and concentration, there can be a number of obstacles and resistance that arise. In this chapter, we'll explore some of the common challenges that people face when trying to use brain training for focus, as well as techniques and strategies for overcoming these barriers.
 

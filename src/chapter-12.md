@@ -1,5 +1,3 @@
-Conclusion
-==========
 
 Recap of the key takeaways from the book
 ----------------------------------------

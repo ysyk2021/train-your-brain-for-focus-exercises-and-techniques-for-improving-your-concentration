@@ -1,5 +1,3 @@
-Chapter 7: Applying Brain Training for Focus in Personal and Professional Settings
-==================================================================================
 
 In this book, we have discussed the importance of focus and concentration for achieving success in various aspects of life. In this chapter, we will explore the importance of applying brain training for focus principles in both personal and professional settings.
 

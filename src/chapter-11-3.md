@@ -1,4 +1,3 @@
-# Strategies for Achieving Sustained Success through a Practice of Effective Use of Brain Training for Focus
 
 In this chapter, we will discuss strategies for achieving sustained success through a practice of effective use of brain training for focus. We will examine the importance of consistency and perseverance, as well as ways to integrate brain training for focus into daily life.
 

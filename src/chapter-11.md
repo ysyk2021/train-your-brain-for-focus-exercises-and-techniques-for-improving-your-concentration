@@ -1,5 +1,3 @@
-Chapter 8: Achieving Long-Term Success through Brain Training for Focus
-=======================================================================
 
 In this book, we have explored techniques for improving focus and concentration through brain training. In this chapter, we will discuss advanced techniques and strategies for achieving long-term success through brain training for focus.
 

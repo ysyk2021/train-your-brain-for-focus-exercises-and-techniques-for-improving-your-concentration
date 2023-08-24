@@ -1,5 +1,3 @@
-Chapter 3: Assessing Your Current Approach to Focus and Concentration
-=====================================================================
 
 When seeking to improve your focus and concentration, it is important to assess your current approach. This chapter will explore the significance of this assessment, techniques for identifying areas of strength and weakness in your current approaches, and strategies for analyzing past successes and failures to inform future approaches.
 

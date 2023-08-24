@@ -1,4 +1,3 @@
-# Techniques for Developing a Plan that Integrates the Principles of Brain Training for Focus
 
 In this chapter, we will discuss techniques for developing an actionable plan for brain training for focus. We will explore how to set goals, identify areas for improvement, choose appropriate exercises, and create a schedule that integrates the principles of brain training for focus.
 
