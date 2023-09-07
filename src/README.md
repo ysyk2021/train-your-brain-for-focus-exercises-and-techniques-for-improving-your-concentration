@@ -10,3 +10,7 @@ Throughout the book, you'll find exercises and activities designed to help you p
 By implementing the techniques and exercises outlined in this book, you can train your brain to stay focused and achieve greater success in all areas of your life. Whether you're looking to boost your productivity, enhance your cognitive performance, or simply reduce stress and anxiety, "Train Your Brain for Focus" can help.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

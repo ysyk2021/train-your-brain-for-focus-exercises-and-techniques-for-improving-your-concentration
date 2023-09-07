@@ -38,3 +38,4 @@
   - [Strategies for achieving sustained success through a practice of effective use of brain training for focus](chapter-11-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
