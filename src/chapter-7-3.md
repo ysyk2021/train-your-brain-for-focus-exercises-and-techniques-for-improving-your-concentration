@@ -1,5 +1,4 @@
-Chapter 4: Strategies for Setting Specific, Measurable, Achievable, Relevant, and Time-Bound (SMART) Goals and Breaking Down Large Goals into Smaller Steps
-===========================================================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into strategies for setting SMART goals and breaking down large goals into smaller steps. By applying these techniques, you can enhance your focus training journey by establishing clear objectives, tracking progress effectively, and maintaining motivation throughout the process.
 

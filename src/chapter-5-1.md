@@ -1,5 +1,4 @@
-Chapter 2: The Basic Idea Behind Brain Training for Focus and How It Can Improve Concentration
-==============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the basic idea behind brain training for focus and how it can be used to improve concentration. By understanding the underlying principles of brain training, you can harness its potential to enhance your ability to concentrate effectively.
 

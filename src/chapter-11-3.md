@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Achieving Sustained Success through Effective Use of Brain Training for Focus
-========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore strategies that will enable you to achieve sustained success in improving your focus and concentration through effective use of brain training techniques. These strategies will help you integrate focus exercises into your daily routine, maintain motivation, track progress, and overcome challenges, ultimately leading to long-term success.
 

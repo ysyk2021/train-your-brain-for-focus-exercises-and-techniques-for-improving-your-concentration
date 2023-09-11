@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Developing a Plan that Integrates the Principles of Brain Training for Focus
-======================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore techniques for developing a plan that integrates the principles of brain training for focus. By incorporating these techniques into your planning process, you can create a comprehensive and effective training plan that maximizes your focus and concentration abilities.
 

@@ -1,5 +1,4 @@
-Chapter 1: Understanding the Fundamentals of Focus and Concentration and Their Impact on Personal and Professional Success
-==========================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 This chapter delves into the fundamentals of focus and concentration, highlighting their crucial role in personal and professional success. By understanding the importance of these cognitive skills and their impact on various aspects of life, you can begin your journey to train your brain for improved focus and concentration.
 

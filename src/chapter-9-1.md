@@ -1,5 +1,4 @@
-Chapter 10: The Obstacles and Resistance That Can Arise When Seeking to Use Brain Training for Focus
-====================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the obstacles and resistance that can arise when seeking to use brain training for focus. While brain training offers tremendous benefits, it is essential to understand and address the challenges that may impede progress. By recognizing these obstacles, you can develop strategies to overcome them and optimize your journey towards improved concentration.
 

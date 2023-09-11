@@ -1,5 +1,4 @@
-Chapter 12: Techniques for Selecting and Implementing Technology Solutions for Brain Training for Focus
-=======================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques to help you select and implement technology solutions effectively in your brain training journey for focus. Technology can offer valuable tools and resources that enhance cognitive training experiences. By understanding how to choose and optimize technology solutions, you can maximize their benefits and improve your concentration abilities.
 

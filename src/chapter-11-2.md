@@ -1,5 +1,4 @@
-Chapter 8: Tips for Overcoming Common Challenges and Obstacles in the Process
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore valuable tips to help you overcome common challenges and obstacles that may arise during your journey of training your brain for focus. By implementing these strategies, you can navigate through difficulties and stay on track towards improving your concentration.
 

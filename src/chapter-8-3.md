@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Using Technology Tools to Support Brain Training for Focus
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into strategies for effectively utilizing technology tools to support your brain training journey for focus. Technology offers a wide range of resources and applications that can enhance your concentration abilities. By implementing these strategies, you can harness the power of technology to optimize your brain training experience.
 

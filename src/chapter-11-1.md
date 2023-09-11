@@ -1,5 +1,4 @@
-Chapter 12: Advanced Techniques and Strategies for Achieving Long-Term Success through Brain Training for Focus
-===============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore advanced techniques and strategies that can propel you towards long-term success in your brain training journey. These methods will help you maximize your focus, concentration, and cognitive abilities, enabling you to achieve your goals and unlock your full potential.
 

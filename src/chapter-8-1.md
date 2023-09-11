@@ -1,5 +1,4 @@
-Chapter 8: The Role of Technology in Brain Training for Focus
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant role that technology plays in brain training for focus. Technology has revolutionized the field of cognitive training, offering a wide range of tools and resources to enhance concentration and attentional abilities. Understanding the various ways technology can support and augment focus training is essential for optimizing your brain training experience.
 

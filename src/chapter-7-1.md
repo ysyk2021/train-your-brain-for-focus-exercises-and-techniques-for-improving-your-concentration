@@ -1,5 +1,4 @@
-Chapter 3: The Importance of an Actionable Plan in Developing Effective Brain Training for Focus Skills
-=======================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the significance of creating an actionable plan when developing effective brain training for focus skills. An actionable plan provides structure, direction, and measurable goals, enabling you to make progress systematically and enhance your focus and concentration abilities.
 

@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Using Brain Training to Maximize Opportunities and Minimize Distractions
-==================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore effective strategies for using brain training to maximize opportunities and minimize distractions. By implementing these techniques, you can optimize your focus and concentration, seize important moments, and maintain productivity in the face of potential distractions.
 

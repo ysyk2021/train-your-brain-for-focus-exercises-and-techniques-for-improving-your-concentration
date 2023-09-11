@@ -1,5 +1,4 @@
-Chapter 2: The Importance of Assessing Your Current Approach to Focus and Concentration When Seeking to Improve
-===============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 This chapter emphasizes the significance of assessing your current approach to focus and concentration when seeking to improve these cognitive skills. By understanding your strengths, weaknesses, and existing strategies, you can identify areas for growth and implement targeted techniques, maximizing your potential for enhanced focus and concentration.
 

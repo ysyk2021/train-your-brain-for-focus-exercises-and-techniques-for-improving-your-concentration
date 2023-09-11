@@ -1,5 +1,4 @@
-Chapter 11: Techniques for Managing Obstacles and Overcoming Resistance
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore techniques for managing obstacles and overcoming resistance in the journey of improving focus and concentration. By implementing these strategies, you can navigate challenges, stay motivated, and achieve success in your brain training efforts.
 

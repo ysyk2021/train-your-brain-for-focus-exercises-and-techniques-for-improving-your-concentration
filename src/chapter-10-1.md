@@ -1,5 +1,4 @@
-Chapter 6: The Importance of Applying Brain Training for Focus Principles in Personal and Professional Settings
-===============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the significance of applying brain training for focus principles in both personal and professional settings. By understanding how these principles can be utilized in various aspects of life, you can maximize your concentration abilities and achieve success in both domains.
 
